@@ -2,4 +2,4 @@
 apenas termux!!
 
 https://discord.gg/rqGyJaHgf
----------CyberXpoit-----------
+CyberXpoit
